@@ -2,4 +2,4 @@
 
 
 
-Garica was here!!! Garica haa no teeth anymore.
+Garica was here!!! Garica haa no teeth anymore. Gari is a dog.
